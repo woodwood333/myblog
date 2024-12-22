@@ -1,0 +1,1 @@
+Music Normale later renamed Attac:k! was a project we were thrilled to kick off  music software 
